@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jamiefromtheworld
-- 👀 I’m interested in film, mathematics, code!
+- 👀 I’m interested in film, mathematics, and code!
 - 🌱 I’m currently learning code from the free online Harvard class
-- 📫 How to reach me... Discord: saint jude#5652 
+- 📫 How to reach me... Discord: saint jude#5652 instagram: moneyhaver473
 
 <!---
 jamiefromtheworld/jamiefromtheworld is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
