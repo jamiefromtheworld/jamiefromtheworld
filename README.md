@@ -1,6 +1,6 @@
 - I’m interested in film, mathematics, and code
-- I’m currently learning code from the free online Harvard class
-- How to reach me... Discord: jamiefromtheworld#5652 instagram: moneyhaver473
+- Junior in HS
+- How to reach me... Instagram: 206.jamie
 
 <!---
 jamiefromtheworld/jamiefromtheworld is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
