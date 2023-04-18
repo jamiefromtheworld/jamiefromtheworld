@@ -1,4 +1,4 @@
-- I’m interested in film, mathematics, and code
+- I’m interested in mathematics, code, and electrical engineering
 - Junior in HS
 
 <!---
