@@ -1,5 +1,5 @@
 - I’m interested in mathematics, code, and electrical engineering
-- Junior in HS
+- Senior in HS
 
 <!---
 jamiefromtheworld/jamiefromtheworld is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
